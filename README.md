@@ -10,9 +10,13 @@ meu nome emarciely mariglod
 
 paludettmarcielymariglod@escola.pr.gov.br
 
+
+
 @marcielymariglod
 
-|[](https://media.tenor.com/i7lltDaTPtuAAAAC/mariglod.gif)
+
+
+![](https://media.tenor.com/lIr7XChTW5sAAAAj/animal-bunny.gif)
 
 
 
